@@ -1,3 +1,3 @@
 ### Hello there 👋
 
-https://www.lucianghimpu.com/
+https://www.lucianghimpu.com
